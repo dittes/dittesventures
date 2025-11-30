@@ -1,2 +1,0 @@
-# dittesventures
-Dittes Ventures
